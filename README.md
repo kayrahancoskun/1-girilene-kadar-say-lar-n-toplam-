@@ -1,0 +1,1 @@
+# 1-girilene-kadar-say-lar-n-toplam-
